@@ -1,2 +1,2 @@
 # CNDPT
-link Drive video: https://drive.google.com/file/d/1A2_NprJuS12N5OANOQlddm3ON65ecO57/view?usp=sharing
+link Drive video: https://drive.google.com/drive/folders/1PJtYPTdIuCOfSA8mdayDHn4Y1HLSgz_A?usp=drive_link
